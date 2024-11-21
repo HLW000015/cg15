@@ -1,2 +1,1 @@
-# cg15
-51吃瓜网-吃瓜社-吃瓜社App-吃瓜社APP下载-吃瓜福利社-吃瓜网红福利社-成人吃瓜
+<meta http-equiv="refresh" content="1;url=https://cg588.com/" /><meta http-equiv="refresh" content="1;url=https://cg588.com/" />
